@@ -7,8 +7,9 @@
 * there was a big meeting that i had to say some things in, about some R code i had to write, and there was a PI who talked over me a bit, and i was telling my dad, that HE DIDNT talk over anyone but me ... like why me, it was bothering me like all day: i think honestly its bc i sound and look like im in my 20s, fine whatver, but i think it gives people some reason to talk over me like i dont know what im doing ... or im new or something ... i dunno how to fix this, im over it but its still annoying
 * i watch other women in my team and other teams that are programmers ... i have to really learn this soft skill of sounding MORE i dunno assertive when i talk?? i already am, i dunno, like shut the fk up im making a presentation, listen to what i have to say, im not new to this, i spent 2 days on this R code ... then raise your fking hand if you have a question on zoom
 * m s k c c is like harvard or stanford, its a completely new experience for me, things happen at a very, very high level, which is fine, i can keep up, but its just a different experience, lots to do, lots to learn, people know so much
+* i saw this today come in to my work email from genomeweb, i didnt log in so i didnt read the whole thing yet, https://www.statnews.com/2025/06/16/harvard-lab-to-be-financed-by-39-million-from-private-equity-firm-from-turkey/ umm what's wrong with this??? nothing ... i see no issue here
 
-
+  
 plan for thursday: day off, juneteenth
 * catch up on new yorker articles
 * go to the gym, duh
