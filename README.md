@@ -8,7 +8,8 @@
 * i watch other women in my team and other teams that are programmers ... i have to really learn this soft skill of sounding MORE i dunno assertive when i talk?? i already am, i dunno, like shut the fk up im making a presentation, listen to what i have to say, im not new to this, i spent 2 days on this R code ... then raise your fking hand if you have a question on zoom
 * m s k c c is like harvard or stanford, its a completely new experience for me, things happen at a very, very high level, which is fine, i can keep up, but its just a different experience, lots to do, lots to learn, people know so much
 * i saw this today come in to my work email from genomeweb, i didnt log in so i didnt read the whole thing yet, https://www.statnews.com/2025/06/16/harvard-lab-to-be-financed-by-39-million-from-private-equity-firm-from-turkey/ umm what's wrong with this??? nothing ... i see no issue here
-
+* in order to name my nextflow pipeline `rigel` or anything else, it has to be a relatable acronym, so i gotta think of something 😬
+* my work github account is not working correctly, so i have to email or call m s k c c help desk which is fun bc theyre so nice 🥺
   
 plan for thursday: day off, juneteenth
 * catch up on new yorker articles
