@@ -10,7 +10,8 @@
 * i saw this today come in to my work email from genomeweb, i didnt log in so i didnt read the whole thing yet, https://www.statnews.com/2025/06/16/harvard-lab-to-be-financed-by-39-million-from-private-equity-firm-from-turkey/ umm what's wrong with this??? nothing ... i see no issue here
 * in order to name my nextflow pipeline `rigel` or anything else, it has to be a relatable acronym, so i gotta think of something 😬
 * my work github account is not working correctly, so i have to email or call m s k c c help desk which is fun bc theyre so nice 🥺
+* guess who is doing well at workkk, according to my manager just now, alhamdulillah, BUT its still a lot of work, lots of questions to claude ai and code and cancer and papers, so its a little tiring sometimes, but im doing well and it feels good to like fit in and do well
   
-plan for thursday: day off, juneteenth
+plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
 * go to the gym, duh
