@@ -15,7 +15,7 @@
 * i think im gonna get lip filler next year, i want to really think about it, i know i dont need it but im just so bored
 * why is life so difficult ... i think ill call the plastic surgeon in my town that does it and find out more about it this week, then i can decide what to do -- i dont need it but im so bored, its temporary it lasts like ~6 months sooooo
 * i want to look like a more put together person, where someone assumes im an interesting person, like i travel or something, but i dont do any of that lol my brother saw some lady at the short hills mall who clearly had a lot of plastic surgery done and im like yeah she looks like she has an interesting ass life, like shes an interesting person, whats wrong with that 
-
+* "do you have an interesting summer planned?" nooo im literally working and then walking 10 steps, no more, to sit in the pool in the backyard, im not even driving to the beach, thats it, thats all im doing
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
