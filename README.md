@@ -19,6 +19,9 @@
 * -- in my most chris tucker voice ever -- im glad yo ass isnt responding to emails bc i dont even wanna talk to you all summer 😂 everybody leave me aloneeee i just want to get a tan, lip filler and thats it
 * some random person to me: "omg you look like an interesting person ... who are you" my response: "i dont even know who i am" 😂
 
+* blehhh workkk
+
+  
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
 * go to the gym, duh
