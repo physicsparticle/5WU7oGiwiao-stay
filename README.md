@@ -26,4 +26,5 @@ plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend 
 * catch up on new yorker articles
 * go to the gym, duh
 
-lip filler appt: 28th @ 1 pm -- we all have to face our fears and do something new, i dunno ... lol, lets see what happens
+lip filler appt: 28th @ 1 pm -- we all have to face our fears and do something new, i dunno ... lol, lets see what happens ... i think its so lame that i cant use my hsa/fsa, forgot which one i have, on aesthetic procedures bc m s k c c did put in a lot of money into my hsa/fsa account and so did i, but i cant use it for lip filler :( its like a legit Dr. that does it so thats good
+
