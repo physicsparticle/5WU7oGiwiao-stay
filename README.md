@@ -13,7 +13,7 @@
 * guess who is doing well at workkk, according to my manager just now, alhamdulillah, BUT its still a lot of work, lots of questions to claude ai and code and cancer and papers, so its a little tiring sometimes, but im doing well and it feels good to like fit in and do well
 * prolly gonna sleep early, have to wake up a little early 🥱 ordered something from sephora last week ... a dual ended lip liner and i forgottt to even open the box been so busy
 * i think im gonna get lip filler next year, i want to really think about it, i know i dont need it but im just so bored
-
+* why is life so difficult ... i think ill call the plastic surgeon in my town that does it and find out more about it this week, then i can decide what to do -- i dont need it but im so bored, its temporary it lasts like ~6 months sooooo
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
