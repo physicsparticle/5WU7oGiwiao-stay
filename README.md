@@ -20,7 +20,7 @@
 * some random person to me: "omg you look like an interesting person ... who are you" my response: "i dont even know who i am" 😂
 
 * blehhh workkk
-
+* couple of things to finish up, ehh ill finish around 5:30-ish, thennn prolly a nap, thennn gonna go out and get some matchaa
   
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
