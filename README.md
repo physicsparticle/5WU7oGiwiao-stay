@@ -17,7 +17,7 @@
 * i want to look like a more put together person, where someone assumes im an interesting person, like i travel or something, but i dont do any of that lol my brother saw some lady at the short hills mall who clearly had a lot of plastic surgery done and im like yeah she looks like she has an interesting ass life, like shes an interesting person, whats wrong with that 
 * "do you have an interesting summer planned?" nooo im literally working and then walking 10 steps, no more, to sit in the pool in the backyard, im not even driving to the beach, thats it, thats all im doing
 * -- in my most chris tucker voice ever -- im glad yo ass isnt responding to emails bc i dont even wanna talk to you all summer 😂 everybody leave me aloneeee i just want to get a tan, lip filler and thats it
-
+* some random person to me: "omg you look like an interesting person ... who are you" my response: "i dont even know who i am" 😂
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
