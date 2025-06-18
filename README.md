@@ -25,3 +25,5 @@
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
 * go to the gym, duh
+
+lip filler appt: 28th @ 1 pm -- we all have to face our fears and do something new, i dunno ... lol, lets see what happens
