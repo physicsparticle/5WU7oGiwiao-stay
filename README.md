@@ -35,7 +35,9 @@
 * gonna wake up a little early tomorrow to straighten my hair bc its just a mess, and i have to put my camera on thurs/fri for a couple of meetings
 * have some things to do with ahhh i cant talk about it but need to write an R script to do something interesting
 * the coffee is not coffee-ing today, literally not working
-  
+* i feel like the days where im a little tired, if there was just somebody outside my house selling c o c a i n e i would just seriously consider it 😇 lol
+
+
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
 * go to the gym, duh
