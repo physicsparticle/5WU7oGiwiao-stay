@@ -1,5 +1,11 @@
 # 5WU7oGiwiao-stay
 
+![screenshot](summer2025.png)
+* no seminars, no didactics, most scheduled meetings -> canceled
+* nobody call me, txt me, im unavailable
+* im not even getting my realid, i legit dont care, im not leaving nj and if i am its only to go to nyc, thats it
+
+
 # RULES
 * no posts from 9-5 work days
 * BC im working
