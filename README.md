@@ -37,7 +37,7 @@
 * the coffee is not coffee-ing today, literally not working
 * i feel like the days where im a little tired, if there was just somebody outside my house selling c o c a i n e i would just seriously consider it 😇 lol -- im seriously joking, i would never do it, i dont like things that cause bigger problems than the original problem theyre prolly suppose to solve
 * my highschool had a c o c a i n e problem and i thought that was all normal until i realized it wasnt
-
+* im the plan maker for this weekend and my brother and his wife are coming up to nj from md so the plan is ... everyone dresses up nice, we go to a nice persian restaurant in north jersey ... sunday ... then do something else after dinner i dunno what
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
