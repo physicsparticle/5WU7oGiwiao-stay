@@ -41,7 +41,7 @@
 * my highschool had a c o c a i n e problem and i thought that was all normal until i realized it wasnt
 * im the plan maker for this weekend and my brother and his wife are coming up to nj from md so the plan is ... everyone dresses up nice, we go to a nice persian restaurant in north jersey ... sunday ... then do something else after dinner i dunno what
 * ehh gonna log into work tomorrow morning then we're all going out to dinner hopefully persian
-
+* day of catching up on things, got something to finish early morning tomorrow, my brother bought his 2006 z4 so we're going to get some coffee later with the top down
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
