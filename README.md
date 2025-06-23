@@ -2,6 +2,7 @@
 
 ![screenshot](summer2025.png)
 ![screenshot](summer2025pt2.png)
+![screenshot](blehh-the-work-week.png)
 
 * no scheduled seminars and no scheduled didactics in the summer
 * most scheduled meetings -> canceled
@@ -50,6 +51,9 @@ lip filler appt: 28th @ 1 pm -- we all have to face our fears and do something n
 * i think the vision is ... 2 syringes of lip filler ... https://espritcosmetic.com/wp-content/uploads/2021/05/Esprit_Tualatin_juvederm_Case1207_Lip-filler_All-Three.jpg
 * i want it to look a little fake but not that much, like 20% fake bc any more than that, i feel like a person looks like they have problems going on in their life and i dont ?? im just bored
 * i think its going to take two rounds of appointments to get it there WE WILL SEEEE
+
+# End of summer goals
+* Take a good realid picture with lip filler
 
 # relatable and relevant tiktoks
 * https://www.tiktok.com/@chaimaaboukhris/video/7457192347701349654
