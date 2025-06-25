@@ -4,6 +4,7 @@
 ![screenshot](summer2025pt2.png)
 ![screenshot](blehh-the-work-week.png)
 ![screenshot](summer-album-2025.png)
+![screenshot](summer2025pt3.png)
 
 * no scheduled seminars and no scheduled didactics in the summer
 * most scheduled meetings -> canceled
