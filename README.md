@@ -44,7 +44,7 @@
 * ehh gonna log into work tomorrow morning then we're all going out to dinner hopefully persian
 * day of catching up on things, got something to finish early morning tomorrow, my brother bought his 2006 z4 so we're going to get some coffee later with the top down
 * theres a senior comp biologist i needed to ask something to but they were out today ... lol ... welp ... so ... anyway got a morning meeting to prepare for by waking up extra early tomorrow, i ordered turkish delivery for everyone for dinner, theres some pide with sausage and eggs i forgot what its called cant wait to try it, i just want the chicken soup tho, going out to get some coffee for tomorrow even tho its hot outside
-
+* i had a dream about the great wall of china lol or some chinese wall, im going to txt my brother about my dream but he doesnt wake up until like 8:50 am bc hes in industry now, not academia lol
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
