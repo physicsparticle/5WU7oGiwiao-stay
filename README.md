@@ -49,7 +49,7 @@
 * the pipeline is still running for something i need to do today for tomorrow ... so for now ... we drink coffee ... bc its going to be a long day, bc actually it might not even get out of the pipeline today hmmm
 * i think i see you in september 2025 ???
 * i have two big things i want to finish today ... so then ill have a slightly lighter friday bc the big meeting is tomorrow, those presentations are like harvard stanford level presentations, theyre extremely good ... and then i can go to jummah with my dad during my lunch break ... thats the plannn for today/tomorrow ... then lip filler appt on saturday ... some studying on sunday
-
+* they made my username a different variation of my first and last name on my work macbook pro than my like actual m s k c c username so it causes these issues sometimes with macfuse, which wont unmount without a restart, like the command just doesnt work, its just soooo annoying ... i have 3 big things to do today and ive completed .5 of them ... if i pace myself, ill finish everything and have a chill summer friday tomorrow to look forward to 
 
 
 
