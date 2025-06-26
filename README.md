@@ -48,6 +48,10 @@
 * i had a dream about the great wall of china lol or some chinese wall, im going to txt my brother about my dream but he doesnt wake up until like 8:50 am bc hes in industry now, not academia lol
 * the pipeline is still running for something i need to do today for tomorrow ... so for now ... we drink coffee ... bc its going to be a long day, bc actually it might not even get out of the pipeline today hmmm
 * i think i see you in september 2025 ???
+* i have two big things i want to finish today ... so then ill have a slightly lighter friday bc the big meeting is tomorrow, those presentations are like harvard stanford level presentations, theyre extremely good ... and then i can go to jummah with my dad during my lunch break ... thats the plannn for today/tomorrow ... then lip filler appt on saturday ... some studying on sunday
+
+
+
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
