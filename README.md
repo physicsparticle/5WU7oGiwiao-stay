@@ -47,6 +47,7 @@
 * theres a senior comp biologist i needed to ask something to but they were out today ... lol ... welp ... so ... anyway got a morning meeting to prepare for by waking up extra early tomorrow, i ordered turkish delivery for everyone for dinner, theres some pide with sausage and eggs i forgot what its called cant wait to try it, i just want the chicken soup tho, going out to get some coffee for tomorrow even tho its hot outside
 * i had a dream about the great wall of china lol or some chinese wall, im going to txt my brother about my dream but he doesnt wake up until like 8:50 am bc hes in industry now, not academia lol
 * the pipeline is still running for something i need to do today for tomorrow ... so for now ... we drink coffee ... bc its going to be a long day, bc actually it might not even get out of the pipeline today hmmm
+* i think i see you in september 2025 ???
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
