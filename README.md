@@ -52,6 +52,8 @@
 * they made my username a different variation of my first and last name on my work macbook pro than my like actual m s k c c username so it causes these issues sometimes with macfuse, which wont unmount without a restart, like the command just doesnt work, its just soooo annoying ... i have 3 big things to do today and ive completed .5 of them ... if i pace myself, ill finish everything and have a chill summer friday tomorrow to look forward to 
 * alright, got a "Looks Good!" from the senior comp biologist ... big thing #1 -> completed, now starting big thing #2 which will take me to like 4:30-5pm, then ill do big thing #3 tomorrow morning, then the second half of friday i can play with claude code a little 😬😬😬
 * big thing #2 is like 90% done, ill finish it in the morning, need like another hour prolly ... ehh good effort. now: nap, then pickup eye drops, get coffee for tomorrow, shower, straighten hair, dinner
+* mannn its 3 pm and ive been so busy all day ahhh ... so goes "have a chill friday" 🤦🏻‍♀️ no such thing
+
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
