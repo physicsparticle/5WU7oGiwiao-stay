@@ -53,7 +53,7 @@
 * alright, got a "Looks Good!" from the senior comp biologist ... big thing #1 -> completed, now starting big thing #2 which will take me to like 4:30-5pm, then ill do big thing #3 tomorrow morning, then the second half of friday i can play with claude code a little 😬😬😬
 * big thing #2 is like 90% done, ill finish it in the morning, need like another hour prolly ... ehh good effort. now: nap, then pickup eye drops, get coffee for tomorrow, shower, straighten hair, dinner
 * mannn its 3 pm and ive been so busy all day ahhh ... so goes "have a chill friday" 🤦🏻‍♀️ no such thing
-
+* u know what ... 10/10 (indoor) weather today ... no socks, tshirt, sweatpants, the ac wasnt on all day bc the vent is next to my desk and im like so cold all day, no complaints, obviously the sun didnt come out today, i didnt get to go to jummah, too busy, got a "Nice job!" from the senior comp biologist, pretty good day so far
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
