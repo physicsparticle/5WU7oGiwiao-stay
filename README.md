@@ -58,6 +58,7 @@
 * omg i really like what the lip filler looks like, it looks just a little fake which is what i wanted, the dr said i already have a lot of volume in my lips so i dont need a second syringe, but i can come back in a month ... apparently its going to be swollen tomorrow ... totally a good decision ... we're all about making good decisions, my dad said it was a little expensive tho, oh well?? ill take a picture later in the week when the swelling goes down ... time for more errands
 * ohh nicee this friday is a day off 😬
 * my parents want to go to nyc for dinner but i wanted to do some work ?? i dont want to go to new york its 92 degrees out it smells so bad when its hot out lol
+* my dad was talking to my SIL in the kitchen earlier, like about mangos, and they were laughing lol ... right so ... i was in my room and i was like ... LOL ... ummm who is my dad talking to that isnt ME like im his whole entire world, we were literally just hate-watching fareed zakaria earlier bc hes such a sell out lol now hes talking to someone else?? my dads not allowed to talk to anyone but me LOL omg im so insane sometimes
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
