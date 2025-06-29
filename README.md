@@ -56,6 +56,8 @@
 * u know what ... 10/10 (indoor) weather today ... no socks, tshirt, sweatpants, the ac wasnt on all day bc the vent is next to my desk and im like so cold all day, no complaints, obviously the sun didnt come out today, i didnt get to go to jummah, too busy, got a "Nice job!" from the senior comp biologist, pretty good day so far
 * got a day of personal errands 😇
 * omg i really like what the lip filler looks like, it looks just a little fake which is what i wanted, the dr said i already have a lot of volume in my lips so i dont need a second syringe, but i can come back in a month ... apparently its going to be swollen tomorrow ... totally a good decision ... we're all about making good decisions, my dad said it was a little expensive tho, oh well?? ill take a picture later in the week when the swelling goes down ... time for more errands
+* ohh nicee this friday is a day off 😬
+
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
