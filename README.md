@@ -63,7 +63,9 @@
 * went out for some local arab food, picking up some kashmiri chai now 😬
 * well, that was sunday, gotta sleep soon
 * i feel like another cup of coffee would keep me up all night so i must resist ... want but cant ☕️
-
+* snacking on this, overpriced for what it is but its so good?? i dunno the ratio of cheese to grapes was off, too little cheese https://order.wawa.com/web/product/97684938-56cf-44d3-8a93-ef41253fde2b?category=fresh-snacks%2Ffruit-and-refrigerated-snacks
+* drinking my the rest of my kashmiri chai from yesterday as i finish up something thats going to get reviewed tomorrowwww
+* the meeting thats ... every 2 week?? or once a month i dunno time passes so quickly ... that every comp biologist at m s k c c attends, is canceled this week, i guess bc its summer, so there are no meetings/seminars all week 😬😬😬 those meetings are good though, most of the time its a seminar, sometimes everyone gets into a mini working group and solves a cancer comp bio problem, but nothing this week ... honestly, a little boring of a week since there are no seminars/req meetings
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
