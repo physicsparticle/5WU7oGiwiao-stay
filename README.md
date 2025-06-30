@@ -62,6 +62,8 @@
 * my dad was talking to my SIL in the kitchen earlier, like about mangos, and they were laughing lol ... right so ... i was in my room and i was like ... LOL ... ummm who is my dad talking to that isnt ME like im his whole entire world, we were literally just hate-watching fareed zakaria earlier bc hes such a sell out lol now hes talking to someone else?? my dads not allowed to talk to anyone but me LOL omg im so insane sometimes
 * went out for some local arab food, picking up some kashmiri chai now 😬
 * well, that was sunday, gotta sleep soon
+* i feel like another cup of coffee would keep me up all night so i must resist ... want but cant ☕️
+
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
