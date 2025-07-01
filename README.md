@@ -6,8 +6,10 @@
 ![screenshot](summer-album-2025.png)
 ![screenshot](summer2025pt3.png)
 ![screenshot](so-it-goes.png)
+[![screenshot](it-is-my-own-summer-2025.png)](https://www.youtube.com/watch?v=VAHqzS5PcaU)
 
-* no scheduled seminars and no scheduled didactics in the summer
+
+* no scheduled seminars and no scheduled didactics in the summer, barely any meetings
 * most scheduled meetings -> canceled
 * nobody call me, txt me, im unavailable
 * im not even getting my realid, i legit dont care, im not leaving nj and if i am its only to go to nyc, thats it
