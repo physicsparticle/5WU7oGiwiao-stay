@@ -72,6 +72,8 @@
 * getting some orange juice delivered from jamba juice, i was going to go out and get it but too busyy, then i'll get my vitamin C for the day 😬🍊
 - [ ] gotta charge my car since the weekend, i keep forgetting, its at 50% 🥹
 * im gonna get either a defones, or a nine inch nails or a mars volta t shirt, im just going to wear it like when i go and get coffee lol with my sweatpants which dont say m s k c c on the butt lololl which i would have wanted more than a scarf which i have to wait until the fall/winter to make use of
+* gotta wake up early tomorrow to work with the senior comp biologist on something ... thenn ... its two days of like no meetings to work on code only 😬😬😬 thats the plan for wed/thurs 😎 maybe i can go out and get some matcha for lunch tomorrow
+
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
