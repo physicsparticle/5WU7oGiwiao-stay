@@ -67,7 +67,8 @@
 * drinking my the rest of my kashmiri chai from yesterday as i finish up something thats going to get reviewed tomorrowwww
 * the meeting thats ... every 2 week?? or once a month i dunno time passes so quickly ... that every comp biologist at m s k c c attends, is canceled this week, i guess bc its summer, so there are no meetings/seminars all week 😬😬😬 those meetings are good though, most of the time its a seminar, sometimes everyone gets into a mini working group and solves a cancer comp bio problem, but nothing this week ... honestly, a little boring of a week since there are no seminars/req meetings
 * fyi pretty busy today, got some things to finish up all day ... u know i forgot to try red lipstick ... weekend, gotta try that on the weekend
-
+* getting some orange juice delivered from jamba juice, i was going to go out and get it but too busyy, then i'll get my vitamin C for the day 😬🍊
+- [ ] gotta charge my car since the weekend, i keep forgetting, its at 50% 🥹
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
