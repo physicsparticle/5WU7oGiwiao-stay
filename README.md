@@ -81,3 +81,10 @@ lip filler appt: 28th @ 1 pm -- we all have to face our fears and do something n
 
 # relatable and relevant tiktoks
 * https://www.tiktok.com/@chaimaaboukhris/video/7457192347701349654
+
+# traits/habits of senior computational biologists that ive noticed ... so far?
+* generally have seen the problem before and are very quick to getting to the solution -> years of experience
+* have high energy in solving problems
+* will pull you through the forest of unknown (bc its unknown to you) for miles and miles
+* are very nice bc theres no good reason to be a problematic person
+* notice small details immediately -> this is the thing i want to be better at -> this is like pattern recognition, they just know something is off
