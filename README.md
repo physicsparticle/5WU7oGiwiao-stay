@@ -74,6 +74,7 @@
 * im gonna get either a defones, or a nine inch nails or a mars volta t shirt, im just going to wear it like when i go and get coffee lol with my sweatpants which dont say m s k c c on the butt lololl which i would have wanted more than a scarf which i have to wait until the fall/winter to make use of
 * gotta wake up early tomorrow to work with the senior comp biologist on something ... thenn ... its two days of like no meetings to work on code only 😬😬😬 thats the plan for wed/thurs 😎 maybe i can go out and get some matcha for lunch tomorrow
 * i got a deftones tshirt where theyre charging $10 for shipping?? and then some lip glosses, ahhh spending money now i feel better, sleep time
+* got an email that we can put in a ticket to IT to get access to ms copilot 😬
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
