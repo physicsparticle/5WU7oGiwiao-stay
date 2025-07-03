@@ -76,6 +76,7 @@
 * i got a deftones tshirt where theyre charging $10 for shipping?? and then some lip glosses, ahhh spending money now i feel better, sleep time
 * got an email that we can put in a ticket to IT to get access to ms copilot 😬
 * ohh maybe ill watch some videos after dinner with my parents on ms copilot, i pay for claude and chatgpt so i dunno if i need ms copilot, they, like actual microsoft people, did a live demo at pydata nyc so i saw it in action, i dunno, i still like writing code from scratch tho but i have to get over that thats a thing of the past
+* on our way back from isha, in the car, i was just telling my dad lol that when im working and writing code, i listen to deftones and fantasize about smoking a cigarette or two or just chain smoke LOL and my dad was saying something funny. i wont do it bc 1. it'll make my expensive clothes smell bad 2. it causes lung cancer but mannn do i fantasize about it sometimes ... theres gotta be something else out there ugh
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
