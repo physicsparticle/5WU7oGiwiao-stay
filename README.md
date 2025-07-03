@@ -75,6 +75,7 @@
 * gotta wake up early tomorrow to work with the senior comp biologist on something ... thenn ... its two days of like no meetings to work on code only 😬😬😬 thats the plan for wed/thurs 😎 maybe i can go out and get some matcha for lunch tomorrow
 * i got a deftones tshirt where theyre charging $10 for shipping?? and then some lip glosses, ahhh spending money now i feel better, sleep time
 * got an email that we can put in a ticket to IT to get access to ms copilot 😬
+* ohh maybe ill watch some videos after dinner with my parents on ms copilot, i pay for claude and chatgpt so i dunno if i need ms copilot, they, like actual microsoft people, did a live demo at pydata nyc so i saw it in action, i dunno, i still like writing code from scratch tho but i have to get over that thats a thing of the past
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
