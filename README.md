@@ -83,6 +83,8 @@
 * i declare .. i claim ... i assert ... i propose that leopard print with lip filler isnt only very staten island, but also very dubai lol, so the perfume is tom ford - oud wood 😂
 * my parents found some super nice pakistani sweet shop in long island, i dont have an appetite after dinner so i dont want anything ... you know what im going to do tomorrow: only 2 things ... watch office space (from 1999) and then go to jummah, and thats it lol, saturday ill log into work bc theres something i want to finish, sunday is for watching that brad pitt movie in theaters with my dad in the dine in theater where you press a button and they bring you nachos, bc my dad said thats not necessary and im like WHAT who wouldnt want nachos served to them while watching a movie ... and thats it lol
 * pani puri and chapli and chips have been acquired, literally no reason to leave the house all weekend lol
+* i was going to my onsite @ m s k c c i think in feb and my dad was helping me something with my car in the morning before i left, and noticed my perfume was too strong and then my mom told me later that they were worried that some crazy person on the subway would start stalking me ... and i was like what an oddly specific scenario that i must now worry about lol ... so i changed it to tom ford - oud wood, its slightly like very slightly masculine but i like it, plus i take a cab now, not the subway so that solves that problem
+
 
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
