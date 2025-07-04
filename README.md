@@ -86,7 +86,7 @@
 * pani puri and chapli and chips have been acquired, literally no reason to leave the house all weekend lol
 * i was going to my onsite @ m s k c c i think in feb and my dad was helping me something with my car in the morning before i left, and noticed my perfume was too strong and then my mom told me later that they were worried that some crazy person on the subway would start stalking me ... and i was like what an oddly specific scenario that i must now worry about lol ... so i changed it to tom ford - oud wood, its slightly like very slightly masculine but i like it, plus i take a cab now, not the subway so that solves that problem
 * im half way through office space, and i was telling my dad that this movie is really funny but its a little too "anti-work" for me and my dad, who is very pro-work and very much dislikes the show the office, said "see, i told you it was a waste of time" LOL
-
+* i use to like the office, but one day a switch flipped and i cant stand that show, they literally needed to fire michael scott, hes soo annoying, and my dad's like now i can understand why he doesnt like that show
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
