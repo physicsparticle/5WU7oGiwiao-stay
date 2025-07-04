@@ -81,7 +81,7 @@
 * my parents want to go to nyc for dinner later, after work, SOOO that means, maybe, a big maybe, ill try red lipstick later, it depends on how exhausted i am after staring at code for hours?? i dunno we'll see, if not today then tomorrow/weekend. i feel like doughnut plant is going to be sold out bc of the holiday and the summer city tourists >:( its the worst feeling ever, when you walk in there and they're like "we're sold out for the night but we have gluten-free doughnuts available" like why ... why would i want that lol ...
 * theres a mandatory meeting next week about new cluster, but it says its 1 of 2 meetings, so i guess both are required ... but then it says if u attend the first one then u dont have to attend the second one ?? so like thats confusing, i wanna ask someone if both are required but i dont want to look dumb ?? 🥹🥹🥹
 * i declare .. i claim ... i assert ... i propose that leopard print with lip filler isnt only very staten island, but also very dubai lol, so the perfume is tom ford - oud wood 😂
-
+* my parents found some super nice pakistani sweet shop in long island, i dont have an appetite after dinner so i dont want anything ... you know what im going to do tomorrow: only 2 things ... watch office space (from 1999) and then go to jummah, and thats it lol, saturday ill log into work bc theres something i want to finish, sunday is for watching that brad pitt movie in theaters with my dad in the dine in theater where you press a button and they bring you nachos, bc my dad said thats not necessary and im like WHAT who wouldnt want nachos served to them while watching a movie ... and thats it lol
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
