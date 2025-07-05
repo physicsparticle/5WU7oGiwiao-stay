@@ -92,7 +92,11 @@
 * i use to like the office, but one day a switch flipped and i cant stand that show, they literally needed to fire michael scott, hes soo annoying, and my dad's like now i can understand why he doesnt like that show
 * that was an alright movie, dad was prolly right, lol, ron livingstons character was super annoying, ummm thats it, i did the two things i wanted to do today 😬
 * working on some work today, theres some things due on thurs i wanted to finish including my nextflow slides 😬
-
+* there was this woman who was presenting at pydata nyc, and she wrote a couple of oreilly books so i wanted to email her ... one day?? about wanting to write a "Python & R for Cancer Genomics" book or something like that, i dunno maybe we can do that in the future and also have some m s k c c people too
+* parents are bbqing chicken tikka today
+* im going to bed early, gonna wake up early tomorrow morning ... thats the plan anyway
+- [ ] i want to finish reading this tomorrow after the brad pitt movie with my dad https://www.newyorker.com/magazine/2025/06/23/the-catch-in-catching-cancer-early
+- [ ] restart my macbook pro bc uptime says its been 38 days T_T
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
