@@ -8,7 +8,7 @@
 ![screenshot](so-it-goes.png)
 [![screenshot](it-is-my-own-summer-2025.png)](https://www.youtube.com/watch?v=VAHqzS5PcaU)
 ![screenshot](summer2025pt4.png)
-
+![screenshot](celebration-of-ignorance.png)
 
 * no scheduled seminars and no scheduled didactics in the summer, barely any meetings
 * most scheduled meetings -> canceled
