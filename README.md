@@ -88,6 +88,8 @@
 * im half way through office space, and i was telling my dad that this movie is really funny but its a little too "anti-work" for me and my dad, who is very pro-work and very much dislikes the show the office, said "see, i told you it was a waste of time" LOL
 * i use to like the office, but one day a switch flipped and i cant stand that show, they literally needed to fire michael scott, hes soo annoying, and my dad's like now i can understand why he doesnt like that show
 * that was an alright movie, dad was prolly right, lol, ron livingstons character was super annoying, ummm thats it, i did the two things i wanted to do today 😬
+* working on some work today, theres some things due on thurs i wanted to finish including my nextflow slides 😬
+
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
