@@ -5,7 +5,10 @@
 ![screenshot](blehh-the-work-week.png)
 ![screenshot](summer-album-2025.png)
 ![screenshot](summer2025pt3.png)
-![screenshot](so-it-goes.png)
+[![screenshot](so-it-goes.png)](https://www.youtube.com/watch?v=cekzwJjFn9E)
+* because my dad told me to -- even if it takes 8 years or more?? i still have to listen to what he said, which is to come home with **that** job ... why ... bc my dad told me to
+* succession -- greatest tv show ive ever experienced ever: 10/10 writing & acting, i would rewatch it but i dont like rewatching tv shows except for community bc the jokes are so funny
+* there should have been more seasons of succession
 [![screenshot](it-is-my-own-summer-2025.png)](https://www.youtube.com/watch?v=VAHqzS5PcaU)
 ![screenshot](summer2025pt4.png)
 ![screenshot](celebration-of-ignorance.png)
