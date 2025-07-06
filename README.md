@@ -115,6 +115,8 @@ lip filler appt: 28th @ 1 pm -- we all have to face our fears and do something n
 
 # relatable and relevant tiktoks
 * https://www.tiktok.com/@chaimaaboukhris/video/7457192347701349654
+* https://www.tiktok.com/@_vxder/video/7522946659920137527 literally call me 11 billion times idc anymoree
+
 
 # traits/habits of senior computational biologists that ive noticed ... so far?
 * generally have seen the problem before and are very quick to getting to the solution -> years of experience
