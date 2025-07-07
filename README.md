@@ -103,6 +103,7 @@
 * something is in the air this year, where i really dont want to be an over-over-achiever, i just want to be an over-achiever or just literally an achiever and thats it. maybe its trump?? maybe its other things, and i feel like, getting laid off from my previous job made me a little afraid it could happen again. but i have to move past it, the bullsh*t and be my best-best-self. i have to figure out whats bothering me i dunno what it is. my dad said i should get my blood work done again, like my vitamin D levels were in range but maybe its that?? is this burnout?? dunno
 * like i wanted to memorize the amino acid abbreviations, i dont have to i just want to as it comes up sometimes its nice to know it without looking it up, i still havent done that 🥹 -- i dunno what it is, so thats not vitamin D, its something else i dunno what
 * that brad pitt movie was good, my dad liked it, yeah well that was the long weekend. ate dinner, going to do something then prolly sleep early
+* its a little cloudy all week/most of the week 🥹
 
 * 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
