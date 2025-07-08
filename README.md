@@ -109,6 +109,7 @@
 * theres a dept picnic in late-aug @ roosevelt island ... i think im not gonna go, that's a little bit of a commute for me 🥹
 * my slides were approved for tomorrow morning's meeting 😬😬😬 i told a story about things happening using some sorta complex R code 😬😬😬 so thats what a computational biologist does ... tells a story about data using code that makes sense
 * its staff appreciation week and everyday there's a raffle where 100 people who work at m s k c c that sign up for the raffle at random win the prize of the day, and i guess they mail it bc the form asks for the address ... so today's raffle was for a portable blender that says m s k c c on it and i hope ... i win, i wonder what tomorrow's raffle will be and i missed yesterday's, i just want a tshirt or a sweatshirt that says m s k c c ... so badly thats all i want 😂
+* ok the plan is to get another syringe of lip filler bc they were bigger last weekend when they were swollen, i want them to look a little fake, i have to wait 3 more weeks bc the dr said i have to wait a month 🥹 but thats it, no more than 2 syringes
 
 * 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
