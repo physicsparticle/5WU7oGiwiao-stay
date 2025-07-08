@@ -105,6 +105,7 @@
 * that brad pitt movie was good, my dad liked it, yeah well that was the long weekend. ate dinner, going to do something then prolly sleep early
 * its a little cloudy all week/most of the week 🥹
 * a little busy all day today up until tomorrow at 4:30 pm 🥹
+* i may get some jamba juice orange juice delivered bc i wont have time to go out and get it hmm
 
 * 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
