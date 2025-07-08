@@ -106,6 +106,7 @@
 * its a little cloudy all week/most of the week 🥹
 * a little busy all day today up until tomorrow at 4:30 pm 🥹
 * i may get some jamba juice orange juice delivered bc i wont have time to go out and get it hmm
+* theres a dept picnic in late-aug @ roosevelt island ... i think im not gonna go, that's a little bit of a commute for me 🥹
 
 * 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
