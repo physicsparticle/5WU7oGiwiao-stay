@@ -117,6 +117,7 @@
 * im going to isha with my dad, where sometimes some rutgers or hs student, it usually a bunch of younger kids, will race his tesla at the signal lol and my dad will race right back hahaha it's 50% success rate that we win, but then im going to sleep 
 * my presentation went well, busyyy dayyy still
 - [ ] watch that video on how to adjust my herman miller embody chair, theres like 5 different levers or something i dunno what does what
+* wow training an "image" that is 100s of GB of a spatialtranscriptomic "something" takes ~12hrs on the new HPC, wow thats interesting i didnt know its that time consuming ... i wonder where this technology will be 10 yrs from now
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
