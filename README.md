@@ -128,10 +128,10 @@ lip filler appt: 28th @ 1 pm -- we all have to face our fears and do something n
 # End of summer goals
 * Take a good realid picture with lip filler
 
-# relatable and relevant tiktoks
+# (maybe) relatable and relevant tiktoks
 * https://www.tiktok.com/@chaimaaboukhris/video/7457192347701349654
 * https://www.tiktok.com/@_vxder/video/7522946659920137527 literally call me 11 billion times idc how many times ... call me im so bored 🥹
-
+* here's the backstory on this tiktok, there's a famous pakistani song that has like 160M views 8of5w7RgcTc , and he's saying the reason people like that song because there's a line that translates to "i dont want to go home, i just want to stand outside your house and wait for you" but the problem with that is that people who are fanatasizing about that LOL ... dont leave their house at all hahahaha https://www.tiktok.com/@chaboiimomo/video/7505858331228114219 __"wHaT aRe DoInG wItH YoUr LiFe"__ heyy i just spent the whole entire day, 8+ hrs, no lunch break, no lunch nap, in my room ... writing code and it works!! sooo ... take that 😂🥹 i was telling my dad earlier, "remember me during the weekend ... i was so free" 😂
 
 # traits/habits of senior computational biologists that ive noticed ... so far?
 * generally have seen the problem before and are very quick to getting to the solution -> years of experience
