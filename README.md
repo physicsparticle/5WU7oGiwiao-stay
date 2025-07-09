@@ -114,7 +114,7 @@
 * i would never ever get a tattoo everr, like never ever, ive have yet to see just one example where it looks good, like nope
 * fake eyelashes have a lot of problems with bacteria growing, so also no, maybe for a special occassion i dunno, but not otherwise
 * the dr that does the lip filler also does facial chemical peels, i dunno i feel like you have to be in your 40s to do that?? all the orgo and chemistry ive taken, im afraid of acids so i dunno if i could do that
-
+* im going to isha with my dad, where sometimes some rutgers or hs student, it usually a bunch of younger kids, will race his tesla at the signal lol and my dad will race right back hahaha it's 50% success rate that we win, but then im going to sleep 
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
