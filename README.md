@@ -109,9 +109,13 @@
 * theres a dept picnic in late-aug @ roosevelt island ... i think im not gonna go, that's a little bit of a commute for me 🥹
 * my slides were approved for tomorrow morning's meeting 😬😬😬 i told a story about things happening using some sorta complex R code 😬😬😬 so thats what a computational biologist does ... tells a story about data using code that makes sense
 * its staff appreciation week and everyday there's a raffle where 100 people who work at m s k c c that sign up for the raffle at random win the prize of the day, and i guess they mail it bc the form asks for the address ... so today's raffle was for a portable blender that says m s k c c on it and i hope ... i win, i wonder what tomorrow's raffle will be and i missed yesterday's, i just want a tshirt or a sweatshirt that says m s k c c ... so badly thats all i want 😂
-* ok the plan is to get another syringe of lip filler bc they were bigger last weekend when they were swollen, i want them to look a little fake, i have to wait 3 more weeks bc the dr said i have to wait a month 🥹 but thats it, no more than 2 syringes
+* ok the plan is to get another syringe of lip filler bc they were bigger last weekend when they were swollen, i want them to look a little fake, i have to wait 3 more weeks bc the dr said i have to wait a month 🥹 but thats it, no more than 2 syringes.
+* people have tattoos and fake eyelashes at m s k c c so im not going to stand out, plus its not a 100% difference, its like a 40% difference and im bored, and regionally ... like nj/nyc looking a little fake works ok ... i dont live in PA or MD anymore where that prolly wouldnt have worked but i did live in upper middle class areas in those states where people really dressed up to go to the mall or food shopping or w/e i dunno, im bored ... i live in an upper middle class town where there is nothing else to do but to get more lip filler 😂
+* i would never ever get a tattoo everr, like never ever, ive have yet to see just one example where it looks good, like nope
+* fake eyelashes have a lot of problems with bacteria growing, so also no, maybe for a special occassion i dunno, but not otherwise
+* the dr that does the lip filler also does facial chemical peels, i dunno i feel like you have to be in your 40s to do that?? all the orgo and chemistry ive taken, im afraid of acids so i dunno if i could do that
 
-* 
+
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
 * go to the gym, duh
