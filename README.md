@@ -119,7 +119,7 @@
 - [ ] watch that video on how to adjust my herman miller embody chair, theres like 5 different levers or something i dunno what does what
 * wow training an "image" that is 100s of GB of a spatialtranscriptomic "something" takes ~12hrs on the new HPC, wow thats interesting i didnt know its that time consuming ... i wonder where this technology will be 10 yrs from now
 * my deftones tshirt came in the mail today so im going to go out and get some coffee for tomorrow morning ... deftones tshirt + jeans + chloe sandals lol thats the look, then dinner with my parents i dunno what my mom is making, prolly going to sleep early ... there is a didactics in the morning but i can skip it ... it looks interesting tho, ummm should have a chill friday just for programming ... thats the plan anyway
-
+* the staff appreciation raffle for today is again ... not a tshirt/sweatshirt lol ... i feel like i'll get something tho, will find out next week 😬
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
