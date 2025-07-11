@@ -123,6 +123,8 @@
 * done with my comp bio projects for the week, got a "very nice job!" from the senior comp biologist, have to do a required m s k c c online training i think it takes an hr and i dont wanna T_T lol whyyyyy i feel like i can do it tomorrow morning when my mind is more fresh but i wanna exclusively work on nextflow all day tomorrow soooo ... guess i should do it today 🤷🏻‍♀️
 * my dad shared a link with me last week about a paid CPR class bc he wants me to know CPR bc i technically work at a hospital, but i didnt click on the link until in the car after isha and its all full now T_T he was saying people in pakistan dont know cpr and its a good opportunity, i should do that tho the next chance i get ... i know it a little bit prolly not enough to help someone
 * i have 3 big things i want to finish today that are due tuesday, so i may have to login on sunday to see where one thing is at in the pipeline, that's the plann 😬
+* i think saturday is a rest day, sunday, login to do some things but thats ok, oh well
+
   
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
