@@ -131,10 +131,15 @@ plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend 
 * catch up on new yorker articles
 * go to the gym, duh
 
+
+# work hard, play hard
+next lip filler appt -- aug 9th @ 11:30 am
+
 lip filler appt: 28th @ 1 pm -- we all have to face our fears and do something new, i dunno ... lol, lets see what happens ... i think its so lame that i cant use my hsa/fsa, forgot which one i have, on aesthetic procedures bc m s k c c did put in a lot of money into my hsa/fsa account and so did i, but i cant use it for lip filler :( its like a legit Dr. that does it so thats good
 * i think the vision is ... 2 syringes of lip filler ... https://espritcosmetic.com/wp-content/uploads/2021/05/Esprit_Tualatin_juvederm_Case1207_Lip-filler_All-Three.jpg
 * i want it to look a little fake but not that much, like 20% fake bc any more than that, i feel like a person looks like they have problems going on in their life and i dont ?? im just bored
 * i think its going to take two rounds of appointments to get it there WE WILL SEEEE
+
 
 # End of ~summer~ the year goals
 * Take a good realid picture with lip filler -> omg the next available appt is in october and its not even near me https://telegov.njportal.com/njmvc/AppointmentWizard/12 >:( ok i gotta check again in the morning and this week, ill get an appt, maybe take a half PTO i dunno
