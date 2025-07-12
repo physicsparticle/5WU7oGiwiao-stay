@@ -126,6 +126,7 @@
 * i think saturday is a rest day, sunday, login to do some things but thats ok, oh well
 * errands and stuff todayy
 * theres some parking ticket my brother got in philly that im hearing about that hes not paying lol ... theres two sides to this tho, apparently the ticket has the wrong license plate on it or something like that but my dad was like this morning "why did he marry an attorney if hes not paying parking tickets" 😂
+* my parents wanna go to north jersey for dinner, i dunno where 😬 i feel too lazy to take pictures lol its just a really lazy saturday
   
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
