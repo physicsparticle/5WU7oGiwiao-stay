@@ -132,6 +132,7 @@
 - [ ] dad says i have to go to the car wash bc my car is too dusty ... maybe ill do this tomorrow 🥹
 * sunday: coffee, work, car wash, beach, shower, sleep
 * part of my errands earlier today was going to ulta to grab some skincare things, like vitamin c lotion, i dunno why but i guess their air conditioner wasnt on like 100%, it was just hot inside i dunno why, and then the line was super long, and i was considering just getting it online, but there was a woman behind me who was on the phone who was complaining about the temperature and the long line and everything else, and i was like, well i thought this to myself as id never engage with a complainer, i get it, totally, but u can just not complain and then its the same line and its the same temperature but ur attitude is different so it doesnt suck as much, i dunno im not a big complainer. i remember it says that in my eye doctors waiting room: "attitude is everything, pick a good one"
+* i dont think we're doing the beach today and i can get my car wash next weekend lol, lazy summer sunday
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
