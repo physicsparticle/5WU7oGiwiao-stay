@@ -13,9 +13,9 @@
 ![screenshot](summer2025pt4.png)
 ![screenshot](celebration-of-ignorance.png)
 [![be my undercover lover](summer2025pt5.png)](https://www.youtube.com/watch?v=AcVQJJoD45w)
+![screenshot](summer2025pt6.png) when i think of you, its always on my mind
 
-
-
+-------------
 * no scheduled seminars and no scheduled didactics in the summer, barely any meetings
 * most scheduled meetings -> canceled
 * nobody call me, txt me, im unavailable
