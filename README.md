@@ -127,7 +127,11 @@
 * errands and stuff todayy
 * theres some parking ticket my brother got in philly that im hearing about that hes not paying lol ... theres two sides to this tho, apparently the ticket has the wrong license plate on it or something like that but my dad was like this morning "why did he marry an attorney if hes not paying parking tickets" 😂
 * my parents wanna go to north jersey for dinner, i dunno where 😬 i feel too lazy to take pictures lol its just a really lazy saturday
-  
+* my parents found a huge turkish supermarket in north jersey, i think it was in wayne, so we went there after dinner, i got some olives ... im just not eating sweets this year so i didnt get chocolate or w/e, i also got stuffed grape leaves. they had a huge fridge full of dubai chocolate ... ummm i dunno lol, is it that good? ive only tried it once, its okay?? im a huge fan of very bitter dark chocolate, like since always ... ohh and i got some frozen manti
+* im just going to log in to work tomorrow morning just to do something, so im sleeping early ... i think my parents want to go to the beach tomorrow so i have to remember to bring my SPF lip balm lol bc i think it said im suppose to avoid the sun bc of my lip filler for like a month or something
+- [ ] dad says i have to go to the car wash bc my car is too dusty ... maybe ill do this tomorrow 🥹
+* sunday: coffee, work, car wash, beach, shower, sleep
+
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
 * go to the gym, duh
