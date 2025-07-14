@@ -134,7 +134,7 @@
 * part of my errands earlier today was going to ulta to grab some skincare things, like vitamin c lotion, i dunno why but i guess their air conditioner wasnt on like 100%, it was just hot inside i dunno why, and then the line was super long, and i was considering just getting it online, but there was a woman behind me who was on the phone who was complaining about the temperature and the long line and everything else, and i was like, well i thought this to myself as id never engage with a complainer, i get it, totally, but u can just not complain and then its the same line and its the same temperature but ur attitude is different so it doesnt suck as much, i dunno im not a big complainer. i remember it says that in my eye doctors waiting room: "attitude is everything, pick a good one"
 * i dont think we're doing the beach today and i can get my car wash next weekend lol, lazy summer sunday
 * u know whats fun, when i go on your websites with my m s k c c vpn, like u wont know its me, and its completely fine for me to google another person in comp bio lol, its just fun, what else am i going to use that vpn for 😂 i do it bc i can 😂
-
+* slowly becoming an important person at work bc i have an extra comp bio project this week ... thats a good thing
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
