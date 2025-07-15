@@ -138,7 +138,7 @@
 * mom made goat liver+kidney curry for dinner, raining too much cant go out to wawa to get coffee for tomorrow BUT i got these pizza flavored cheetos last week that my brother wants a review of so i gotta try those this week, trying to finish something before 4 pm tomorrow so gonna go to sleep early ... mon/tues are usually busy, its just how and what it is
 * super busy, prolly all day 🥹
 * https://www.genomeweb.com/cancer/uchicago-spinout-orisdx-prepares-launch-saliva-based-oral-cancer-test saw this in my work email, too busy to login and read it, def will later, looks interesting
-
+* my new jeans from anthropologie came in the mail yesterday, like ~ 10 am, and i have yet to try them on 🥹 so busy
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
