@@ -15,6 +15,7 @@
 [![be my undercover lover](summer2025pt5.png)](https://www.youtube.com/watch?v=AcVQJJoD45w)
 ![screenshot](summer2025pt6.png) when i think of you, its always on my mind
 ![screenshot](summer2025pt7-ok-these-are-good-chatgpt.png)
+![screenshot](summer2025pt7-lol-right-its-lol-T_T.png)
 -------------
 * no scheduled seminars and no scheduled didactics in the summer, barely any meetings
 * most scheduled meetings -> canceled
@@ -139,6 +140,7 @@
 * super busy, prolly all day 🥹
 * https://www.genomeweb.com/cancer/uchicago-spinout-orisdx-prepares-launch-saliva-based-oral-cancer-test saw this in my work email, too busy to login and read it, def will later, looks interesting
 * my new jeans from anthropologie came in the mail yesterday, like ~ 10 am, and i have yet to try them on 🥹 so busy
+* has the sun been out all day, no clue, and im right next to my window shades open all day lol ... need rest, shower, dinner and sleep ... rest of the week is a little bit more chill
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
