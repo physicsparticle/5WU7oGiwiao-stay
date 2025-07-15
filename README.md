@@ -141,6 +141,8 @@
 * https://www.genomeweb.com/cancer/uchicago-spinout-orisdx-prepares-launch-saliva-based-oral-cancer-test saw this in my work email, too busy to login and read it, def will later, looks interesting
 * my new jeans from anthropologie came in the mail yesterday, like ~ 10 am, and i have yet to try them on 🥹 so busy
 * has the sun been out all day, no clue, and im right next to my window shades open all day lol ... need rest, shower, dinner and sleep ... rest of the week is a little bit more chill
+* i got an "excellent job" from the senior comp biologist today
+* parents want to go to nyc this weekend and im suppose to find a restaurant 😬 but theyre doing errands so i can just not go and do my own thing? so i dunno, i just dont like sitting in the car for hours, but then i can listen to a podcast and stare out the window and think? and get doughnuts? i dunno, on the fence
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
