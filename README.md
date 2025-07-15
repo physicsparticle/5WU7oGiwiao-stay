@@ -136,7 +136,7 @@
 * u know whats fun, when i go on your websites with my m s k c c vpn, like u wont know its me, and its completely fine for me to google another person in comp bio lol, its just fun, what else am i going to use that vpn for 😂 i do it bc i can 😂
 * slowly becoming an important person at work bc i have an extra comp bio project this week ... thats a good thing
 * mom made goat liver+kidney curry for dinner, raining too much cant go out to wawa to get coffee for tomorrow BUT i got these pizza flavored cheetos last week that my brother wants a review of so i gotta try those this week, trying to finish something before 4 pm tomorrow so gonna go to sleep early ... mon/tues are usually busy, its just how and what it is
-
+* super busy, prolly all day 🥹
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
