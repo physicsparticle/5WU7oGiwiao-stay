@@ -143,6 +143,8 @@
 * has the sun been out all day, no clue, and im right next to my window shades open all day lol ... need rest, shower, dinner and sleep ... rest of the week is a little bit more chill
 * i got an "excellent job" from the senior comp biologist today
 * parents want to go to nyc this weekend and im suppose to find a restaurant 😬 but theyre doing errands so i can just not go and do my own thing? so i dunno, i just dont like sitting in the car for hours, but then i can listen to a podcast and stare out the window and think? and get doughnuts? i dunno, on the fence
+* i dunno when our next onsite will be, i guess september ... my mom cleans my room when i have my onsites lol, ill come back from work and it'll be clean, like thankss lol, theyre remodeling the downstairs bathroom and are picking up a shower door or something from some warehouse in nyc, im going to be bored out of my mind, but, i get to choose the restaurant everybody goes to sooOOO ...
+
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
