@@ -147,6 +147,9 @@
 * i dunno when our next onsite will be, i guess september ... my mom cleans my room when i have my onsites lol, ill come back from work and it'll be clean, like thankss lol, theyre remodeling the downstairs bathroom and are picking up a shower door or something from some warehouse in nyc, im going to be bored out of my mind, but, i get to choose the restaurant everybody goes to sooOOO ...
 * i guess one day youll also experience this, but i have beef with that downstairs bathroom, bc ... literally bc ... theres almost always a spider in there, its clean but theres literally always a spider in there, like a new one every time in the corner >:(
 * there were some funny jokes in one of the meetings yesterday, my camera and mic were off and i was literally laughing out loud haha, theres a lot that happens that i cant mention here, but one day??
+* i modeled my anthropologie jeans for my mom lol after my comp bio project was finished, theyre a little long so they go well with high heels, maybe ill take pictures over the weekend bc i need to iron them too
+* going out to dinner with my parents and i want to wear sweatpants and a tshirt but i cant, im so tired, my brain is like jello T_T
+* its always raining, like everyday
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
