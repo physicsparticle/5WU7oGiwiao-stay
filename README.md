@@ -16,6 +16,7 @@
 ![screenshot](summer2025pt6.png) when i think of you, its always on my mind
 ![screenshot](summer2025pt7-ok-these-are-good-chatgpt.png)
 ![screenshot](summer2025pt7-lol-right-its-lol-T_T.png)
+![as long as i can take a cab tho lol](summer2025-pt8-saw-this-yesterday_could-be-true_sure.png)
 -------------
 * no scheduled seminars and no scheduled didactics in the summer, barely any meetings
 * most scheduled meetings -> canceled
