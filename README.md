@@ -150,6 +150,7 @@
 * i modeled my anthropologie jeans for my mom lol after my comp bio project was finished, theyre a little long so they go well with high heels, maybe ill take pictures over the weekend bc i need to iron them too
 * going out to dinner with my parents and i want to wear sweatpants and a tshirt but i cant, im so tired, my brain is like jello T_T
 * its always raining, like everyday
+* we're doing, tights with valentino heels but a sweatshirt bc im tired but i am hungry 😎 im going to get home and prolly sleep, and im going to do this all over again tomorrow ... friday is going to be chill tho
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
