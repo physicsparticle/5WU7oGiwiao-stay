@@ -151,6 +151,8 @@
 * going out to dinner with my parents and i want to wear sweatpants and a tshirt but i cant, im so tired, my brain is like jello T_T
 * its always raining, like everyday
 * we're doing, tights with valentino heels but a sweatshirt bc im tired but i am hungry 😎 im going to get home and prolly sleep, and im going to do this all over again tomorrow ... friday is going to be chill tho
+* my parents have fed me and now i feel better lol, im going to do some things then im going to sleep, theres a required didactics tomorrow morning and i forgot to get my grapes and cheese from wawa bc i wanted to snack on it while it was on but oh well
+* my dad was saying during dinner that if u go nearer a denser object, that time goes slower, and im like yeah ok, but i dont remember why even tho i took physics in hs and undergrad ... soo according to chatgpt "Yes— but it’s really the strength of the gravitational field (or equivalently, how deep you sit in a gravitational potential) that slows clocks, not “density” by itself."
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
