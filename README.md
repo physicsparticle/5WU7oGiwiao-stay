@@ -171,6 +171,7 @@ lip filler appt: 28th @ 1 pm -- we all have to face our fears and do something n
 # End of ~summer~ the year goals
 * Take a good realid picture with lip filler -> omg the next available appt is in october and its not even near me https://telegov.njportal.com/njmvc/AppointmentWizard/12 >:( ok i gotta check again in the morning and this week, ill get an appt, maybe take a half PTO i dunno
 * appt =  10/11/2025 (Saturday) @ 1:15 PM
+* write an article on my blog that's collecting dust T_T (but gets views lol) on HGVS Nomenclature by end of summer, there's senior comp biologists that are so good with this, they know when its wrong like its an intuition
 
 # (maybe) relatable and relevant tiktoks
 * https://www.tiktok.com/@chaimaaboukhris/video/7457192347701349654
