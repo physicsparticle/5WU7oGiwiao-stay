@@ -155,7 +155,7 @@
 * my dad was saying during dinner that if u go nearer a denser object, that time goes slower, and im like yeah ok, but i dont remember why even tho i took physics in hs and undergrad ... soo according to chatgpt "Yes— but it’s really the strength of the gravitational field (or equivalently, how deep you sit in a gravitational potential) that slows clocks, not “density” by itself."
 * omggg i love talking about (cancer) biology on slack, being in a discussion, getting questions asked ... and then answering them with so much zeal ... the programming part is what i like too, but i keep forgetting how much i love biology ... but its the programming that bought me back to the biology ... i dont think i can ever work in industry ever again, its a lot of work too but it doesnt get as deep as academia does and creative too but to be fair industry is also creative
 * i dont think ive discussed the biology, in depth, since, dare i say, undergrad and then, in order to tell a great story about the data, the data has to be good and m s k c c  has a lot of great data, i dunno im having fun, its a lot of work tho, more than ever, but at least i dont have to commute and all that other stuff
-
+* im going to go out an try and grab a latte for a late lunch today -- thats the goal, prolly around 3 or 4 pm, not too hot today
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
