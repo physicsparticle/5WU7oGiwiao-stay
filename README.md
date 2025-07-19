@@ -157,6 +157,7 @@
 * i dont think ive discussed the biology, in depth, since, dare i say, undergrad and then, in order to tell a great story about the data, the data has to be good and m s k c c  has a lot of great data, i dunno im having fun, its a lot of work tho, more than ever, but at least i dont have to commute and all that other stuff
 * im going to go out an try and grab a latte for a late lunch today -- thats the goal, prolly around 3 or 4 pm, not too hot today
 * maybe ill record a MINI PODCAST of my first day at m s k c c maybe this weekend and u have to listen to it bc some interesting things happened, maybe its just more interesting as a voice memo i dunno lol
+* i hope u like it u have to listen to the whole 30 mins lol, i thought it was only going to be 5 mins
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
