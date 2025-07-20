@@ -159,7 +159,8 @@
 * maybe ill record a MINI PODCAST of my first day at m s k c c maybe this weekend and u have to listen to it bc some interesting things happened, maybe its just more interesting as a voice memo i dunno lol
 * i hope u like it u have to listen to the whole 30 mins lol, i thought it was only going to be 5 mins
 * pani puri and doughnut plant have been acquired, my parents liked the thai restaurant i found ... it was a little too spicy tho my face was sweating lol, and we did the fried ice cream, dad got mangos
-
+* my mom had to do errands today so i was like, ill take you wherever you want to go, as long as you come to the car wash with me and she was like, its sooo boring tho, but we did it, got everything done, car is all nice and clean from the outside
+* i was at this cafe to get coffee for tomorrow and they now have turkish coffee, so i was like, that ... turkish coffee with two shots of espresso and the girl called over the owner/manager (!!) and he was like ... you can't do that, it's too strong, and im like really?? and hes like, even one shot of espresso is too much, so i was like ok, lets just do the turkish coffee ... i dunno is that true, is it really that strong?? it smells good tho
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
