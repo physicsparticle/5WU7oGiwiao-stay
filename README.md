@@ -158,6 +158,8 @@
 * im going to go out an try and grab a latte for a late lunch today -- thats the goal, prolly around 3 or 4 pm, not too hot today
 * maybe ill record a MINI PODCAST of my first day at m s k c c maybe this weekend and u have to listen to it bc some interesting things happened, maybe its just more interesting as a voice memo i dunno lol
 * i hope u like it u have to listen to the whole 30 mins lol, i thought it was only going to be 5 mins
+* pani puri and doughnut plant have been acquired, my parents liked the thai restaurant i found ... it was a little too spicy tho my face was sweating lol, and we did the fried ice cream, dad got mangos
+
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
