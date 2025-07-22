@@ -163,6 +163,7 @@
 * i was at this cafe to get coffee for tomorrow and they now have turkish coffee, so i was like, that ... turkish coffee with two shots of espresso and the girl called over the owner/manager (!!) and he was like ... you can't do that, it's too strong, and im like really?? and hes like, even one shot of espresso is too much, so i was like ok, lets just do the turkish coffee ... i dunno is that true, is it really that strong?? it smells good tho
 * extra coffee day ☕️
 * didactics this morning was very good, lots of info that the seniors know, im going to rewatch the recording later this week ... going to sleep early, wake up early
+* wearing socks today --> indoor weather
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
