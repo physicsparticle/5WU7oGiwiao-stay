@@ -164,6 +164,7 @@
 * extra coffee day ☕️
 * didactics this morning was very good, lots of info that the seniors know, im going to rewatch the recording later this week ... going to sleep early, wake up early
 * wearing socks today --> indoor weather
+* debugging some perl this morning 🥹
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
