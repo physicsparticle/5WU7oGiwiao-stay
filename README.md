@@ -166,7 +166,8 @@
 * wearing socks today --> indoor weather
 * debugging some perl this morning 🥹
 * random thought of the day: i really like the word "cytoband" lol, i love seeing it and using it in sentences
-
+* just busy, they're keeping me busy which i was telling me dad the other day and i like it lol, i like being busy and thinking
+- [ ] go outside 🥹 and charge my car 🚗
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
