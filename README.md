@@ -170,6 +170,7 @@
 * just busy, they're keeping me busy which i was telling me dad the other day and i like it lol, i like being busy and thinking
 - [x] go outside 🥹 and charge my car 🚗 i had to move my car closer to the charger and the inside of my car still smells like the turkish coffee i got yesterday lol
 * mark cuban ended up responding to my brother: https://bsky.app/profile/faizerpewpew.bsky.social/post/3lulnyppkm22r i coached him on how to respond and he asked someone in his company as well, we'll see what happens, i txt'd him this morning like "mark cuban responded to you" and he's like "Holy crap!!!!! What the fk!!! " lololl
+* yay its fridayyy 😬
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
