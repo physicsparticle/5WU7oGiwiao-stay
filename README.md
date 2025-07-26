@@ -18,6 +18,7 @@
 ![screenshot](summer2025pt7-lol-right-its-lol-T_T.png)
 ![as long as i can take a cab tho lol](summer2025-pt8-saw-this-yesterday_could-be-true_sure.png)
 ![screenshot](summer2025pt9.png)
+![screenshot](summer2025pt10-they-got-me-good.png)
 -------------
 * no scheduled seminars and no scheduled didactics in the summer, barely any meetings
 * most scheduled meetings -> canceled
