@@ -173,7 +173,7 @@
 * mark cuban ended up responding to my brother: https://bsky.app/profile/faizerpewpew.bsky.social/post/3lulnyppkm22r i coached him on how to respond and he asked someone in his company as well, we'll see what happens, i txt'd him this morning like "mark cuban responded to you" and he's like "Holy crap!!!!! What the fk!!! " lololl
 * yay its fridayyy 😬
 * https://www.robertocavalli.com/en-us/women/ready-to-wear/sweatshirts/sweatshirt-with-maxi-rose-print--UKT67B-HUN48-02000.html i wouldnt have gotten this for the original price but with the sale and the fact that its fall next month ... good deal, i argue to myself
-
+* the restaurant i wanted to go to todayyy is in north--north jersey, like more than an hr away so maybe we're doing that or something closer
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
