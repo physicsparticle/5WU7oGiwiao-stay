@@ -165,7 +165,7 @@
 * my mom had to do errands today so i was like, ill take you wherever you want to go, as long as you come to the car wash with me and she was like, its sooo boring tho, but we did it, got everything done, car is all nice and clean from the outside
 * i was at this cafe to get coffee for tomorrow and they now have turkish coffee, so i was like, that ... turkish coffee with two shots of espresso and the girl called over the owner/manager (!!) and he was like ... you can't do that, it's too strong, and im like really?? and hes like, even one shot of espresso is too much, so i was like ok, lets just do the turkish coffee ... i dunno is that true, is it really that strong?? it smells good tho
 * extra coffee day ☕️
-* didactics this morning was very good, lots of info that the seniors know, im going to rewatch the recording later this week ... going to sleep early, wake up early
+- [ ] didactics this morning was very good, lots of info that the seniors know, im going to rewatch the recording later this week ... going to sleep early, wake up early
 * wearing socks today --> indoor weather
 * debugging some perl this morning 🥹
 * random thought of the day: i really like the word "cytoband" lol, i love seeing it and using it in sentences
@@ -175,6 +175,7 @@
 * yay its fridayyy 😬
 * https://www.robertocavalli.com/en-us/women/ready-to-wear/sweatshirts/sweatshirt-with-maxi-rose-print--UKT67B-HUN48-02000.html i wouldnt have gotten this for the original price but with the sale and the fact that its fall next month ... good deal, i argue to myself
 * the restaurant i wanted to go to todayyy is in north--north jersey, like more than an hr away so maybe we're doing that or something closer
+-[ ] good didactics this morning, lots of info, i wanna rewatch this one too
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
