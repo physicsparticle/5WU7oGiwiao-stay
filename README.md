@@ -175,7 +175,7 @@
 * yay its fridayyy 😬
 * https://www.robertocavalli.com/en-us/women/ready-to-wear/sweatshirts/sweatshirt-with-maxi-rose-print--UKT67B-HUN48-02000.html i wouldnt have gotten this for the original price but with the sale and the fact that its fall next month ... good deal, i argue to myself
 * the restaurant i wanted to go to todayyy is in north--north jersey, like more than an hr away so maybe we're doing that or something closer
--[ ] good didactics this morning, lots of info, i wanna rewatch this one too
+- [ ] good didactics this morning, lots of info, i wanna rewatch this one too -- bc it has to do with some things we can do with this data 😬 so i should know/understand/memorize whats happening outside of my world of projects that occupy me thoughout the week
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
