@@ -20,6 +20,7 @@
 ![screenshot](summer2025pt9.png)
 ![screenshot](summer2025pt10-they-got-me-good.png)
 ![screenshot](summer2025pt11.png)
+![def wanna make this cake](summer2025pt12.png)
 -------------
 * no scheduled seminars and no scheduled didactics in the summer, barely any meetings
 * most scheduled meetings -> canceled
