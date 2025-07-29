@@ -180,6 +180,8 @@
 * extra coffee day 😬☕️
 * wired did an article on perl this week: https://www.wired.com/story/programmers-arent-humble-anymore-nobody-codes-in-perl/ i posted it to our m s k c c slack and emailed it to ryan (bioinfo prof) bc i mentioned him earlier lol i was like why dont i email this to him bc thats where i learned perl
 * im going to get a Perl tshirt now lol
+* heyy someone today presented some things on what u guys next door are doing in cancer + AI and wow ... cool ... interesting 😬 arent we friends now bc you're next door, im allowed to know somethings about what u guys are doing
+
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
