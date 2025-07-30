@@ -182,6 +182,9 @@
 * im going to get a Perl tshirt now lol
 * heyy someone today presented some things on what u guys next door are doing in cancer + AI and wow ... cool ... interesting 😬 arent we friends now bc you're next door, im allowed to know somethings about what u guys are doing -- oo the slides have been posted, oooo c o n f i d e n t i a l  ok ill study the general idea of this stuff in the month of august, i see its a lot of math
 * butter chicken for dinnerr then im going to finish up something from work
+* oo its 97 today, cant believe its august on friday
+* u know how i said earlier that i was "finish up something from work" after dinner, i took a nap and finished my slides and something else from 1:30am - 2:30am then went back to sleep lol
+
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
