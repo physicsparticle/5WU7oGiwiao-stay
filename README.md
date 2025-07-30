@@ -188,6 +188,7 @@
 * u know how i said earlier that i was "finish up something from work" after dinner, i took a nap and finished my slides and something else from 1:30am - 2:30am then went back to sleep lol
 * theres going to be a really good didactics tomorrow morningg
 - [ ] i need a new notebook and it can only be whitelines since like 2010 https://www.amazon.com/Whitelines-Notebook-2-Sided-Background-Disappears/dp/B01MA6QGWT
+* out to local thai with my parents, then gonna sleep early bc i had weird sleep yesterday 🥹
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
