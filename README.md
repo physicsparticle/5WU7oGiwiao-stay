@@ -191,7 +191,7 @@
 - [ ] i need a new notebook and it can only be whitelines since like 2010 https://www.amazon.com/Whitelines-Notebook-2-Sided-Background-Disappears/dp/B01MA6QGWT
 * out to local thai with my parents, then gonna sleep early bc i had weird sleep yesterday 🥹
 * coffee and didactics this morningg
-
+* in the didactics, it happened again, the speaker was like, off the top of their head talking about how the exons behave in a random ass gene, like how do u know all of that information omg i need to study moreeee, so many comp bio nerds here at m s k c c
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
