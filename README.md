@@ -189,6 +189,8 @@
 * theres going to be a really good didactics tomorrow morningg
 - [ ] i need a new notebook and it can only be whitelines since like 2010 https://www.amazon.com/Whitelines-Notebook-2-Sided-Background-Disappears/dp/B01MA6QGWT
 * out to local thai with my parents, then gonna sleep early bc i had weird sleep yesterday 🥹
+* coffee and didactics this morningg
+
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
