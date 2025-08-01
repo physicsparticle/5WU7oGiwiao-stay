@@ -197,6 +197,7 @@
 * showered and now its sleep time!!
 * the chaos is having multiple terminal windows open but knowing exactly what each one is doing/where its at and switching to each one is currently me rn lol
 * theres a symposium going on with talks on AI in cancer at m s k c c, i have it on in the bg, pretty interesting
+* ill tell u some stories tomorrow, maybe some are funny, but ive just been so busy all week
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
