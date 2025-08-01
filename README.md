@@ -194,7 +194,7 @@
 * in the didactics, it happened again, the speaker was like, off the top of their head talking about how the exons behave in a random ass gene, like how do u know all of that information omg i need to study moreeee, so many comp bio nerds here at m s k c c
 * during the dinner at the thai restaurant yesterday, there was a fly flying around, and so my parents called over the waiter to get rid of it or something, and im thinking, what the fk is the waiter going to do about it lol, BUT I STAND CORRECTED ... he comes back with this electric fly zapper that looks like a tennis racket and started pacing back and forth looking for it -_- and im like okkk, but he was unsuccessful, the fly was the 4th member of our party yesterday ... it was pretty annoying actually but yeah, see id never call over a waiter and ask that but my parents do things like that sometimes
 * someone was sharing their screen earlier, without giving too much info, it was related to IGV and BLAT, and someone else suggested a lesser known option to do what the person sharing the screen was doing but a little faster, like an option in the drop down, and i was like "ooommmmgggg" out loud (my mic/camera was off) as if i was watching a soccer game and someone scored a goal bc i didnt know about that option either -- i am also a comp bio nerd lol
-
+* showered and now its sleep time!!
 
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
