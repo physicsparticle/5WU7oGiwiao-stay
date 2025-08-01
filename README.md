@@ -196,6 +196,7 @@
 * someone was sharing their screen earlier, without giving too much info, it was related to IGV and BLAT, and someone else suggested a lesser known option to do what the person sharing the screen was doing but a little faster, like an option in the drop down, and i was like "ooommmmgggg" out loud (my mic/camera was off) as if i was watching a soccer game and someone scored a goal bc i didnt know about that option either -- i am also a comp bio nerd lol
 * showered and now its sleep time!!
 * the chaos is having multiple terminal windows open but knowing exactly what each one is doing/where its at and switching to each one is currently me rn lol
+* theres a symposium going on with talks on AI in cancer at m s k c c, i have it on in the bg, pretty interesting
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
