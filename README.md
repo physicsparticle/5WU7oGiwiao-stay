@@ -198,6 +198,7 @@
 * the chaos is having multiple terminal windows open but knowing exactly what each one is doing/where its at and switching to each one is currently me rn lol
 * theres a symposium going on with talks on AI in cancer at m s k c c, i have it on in the bg, pretty interesting
 * ill tell u some stories tomorrow, maybe some are funny, but ive just been so busy all week
+* im studying all weekend, like im going to leave the house lol, but i dont have time during the work week to study but i think if i spend my weekends making the notecards on anki then i can review them throughout the week ... theres a lot that i know but some things arent sticking and that's so annoyingggg, i have to know it bc my manager wants me to be a "superstar" at m s k c c lol yeahhhh okayyy fine ill spend my weekend studying
 
 plan for thursday: ~day off~, juneteenth noo its not a day off oh well, weekend plans
 * catch up on new yorker articles
